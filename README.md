@@ -4,4 +4,3 @@
 - 👯 I’m looking to collaborate with anyone who wants to learn together
 - 💬 Ask me about anything
 - 📫 How to reach me: ao@freespot.dk
-- 😄 Pronouns: he/him
